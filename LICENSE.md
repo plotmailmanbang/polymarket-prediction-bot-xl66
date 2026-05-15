@@ -1,4 +1,4 @@
-# 
+# exclusive Polymarket Addon | decentralized-trading + volatility-detection offers the most advanced Polymarket addon, with decentralized-trading and volatility-detection. Ideal for
 
 
 
